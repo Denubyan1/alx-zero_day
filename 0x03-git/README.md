@@ -1,1 +1,1 @@
-My best friend
+My new Squad is dope
